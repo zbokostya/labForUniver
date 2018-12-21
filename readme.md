@@ -1,5 +1,5 @@
 **Ageichik Anatoli**
-**Zboychik Konstantin**   
+**Zboychik Konstantin**
 **Zhylko Roman**   
 **Petraschenko Artem**   
 
